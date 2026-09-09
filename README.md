@@ -1,2 +1,0 @@
-# Mercykossalon-cosmetics
-Mercy salon
